@@ -1,0 +1,3 @@
+# fbjdgbjd HOpA
+
+CRASH COURSE FOR GIT
